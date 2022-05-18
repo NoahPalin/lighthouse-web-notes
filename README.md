@@ -1,1 +1,1 @@
-# [Noah Palin]'s Notes
+# Noah Palin's Notes
